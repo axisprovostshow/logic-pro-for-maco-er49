@@ -1,4 +1,4 @@
-# 
+# rare Logic Pro for macOS Plugin | multi-cam-editing + green-screen-removal is the best Logic Pro for macOS plugin, featuring multi-cam-editing and green-screen-removal. Safe,
 
 
 
